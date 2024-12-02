@@ -1,0 +1,1 @@
+# Guidance-Video-Creator-on-Synthensia-Platform-AI-text-to-video-
